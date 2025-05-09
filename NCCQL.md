@@ -1,0 +1,1 @@
+Aqui eu como o cu de quem tá lendo.
